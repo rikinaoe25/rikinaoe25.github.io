@@ -1,0 +1,1 @@
+# rikinaoe25.github.io
